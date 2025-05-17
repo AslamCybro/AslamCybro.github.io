@@ -1,2 +1,0 @@
-# AslamCybro.github.io
-test
